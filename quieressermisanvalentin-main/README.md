@@ -1,24 +1,12 @@
-# ¡Quieres ser mi San Valentín! 💖
-¡Hola! Soy [Mabel Olivera - @mabelolivera10]() y estoy encantada de conocerte.
+💖 Para mi amor, Candela 💖
 
-## Acerca de mí👀
-Soy una persona apasionada por mi profesión, con una excelente capacidad de organización y facilidad para trabajar en equipo. Me considero altamente adaptable a diferentes entornos y siempre enfocada en alcanzar objetivos. Además, poseo conocimientos en diversos lenguajes de programación como Java, Visual.NET, PHP, entre otros. Tengo un gran interés en el desarrollo de software y el análisis de sistemas.
+Hola, mi vida. ✨
 
-🌱 Actualmente, estoy enfocada en seguir aprendiendo y mejorando mis habilidades en distintos lenguajes de programación.
+Este mensaje es solo para vos, porque sos la persona más increíble que existe. En unos días vamos a cumplir seis meses juntos (¡el 20! 🎉) y no puedo estar más feliz de compartir este tiempo con vos. Cada día a tu lado es especial, y no hay momento en el que no agradezca tenerte conmigo.
 
-## Colaboración💞
-Estoy interesada en colaborar contigo en proyectos emocionantes y desafiantes. ¡Juntos podemos lograr grandes cosas!
+Me hacés reír, me apoyás en todo y sos mi persona favorita en el mundo. 🥰 Gracias por cada abrazo, cada palabra linda y cada instante que pasamos juntos. No importa cuánto tiempo pase, siempre voy a elegirte a vos. 💖
 
-## Contacto 📫
-Puedes encontrarme en mis redes sociales:
+Te amo con todo mi corazón, Candela. 💕
 
-- [Facebook](https://www.facebook.com/mabelquispeolivera/)
-- [Instagram](https://www.instagram.com/mabelolivera10/)
-- [TikTok](https://www.tiktok.com/@encodedmabel)
-- [YouTube](https://www.youtube.com/@encodedmabel)
-- [LinkedIn](https://www.linkedin.com/in/mabelquispeolivera/)
-- [Twitter](https://twitter.com/mabel_Q_O)
-- [CodeOpen](https://codepen.io/mabelolivera10)
-- [Sitio Web](https://encoded.pe/)
-
-¡Espero poder conectarme contigo pronto y colaborar en futuros proyectos! 😊
+Con amor,
+Sebastián. ❤️
