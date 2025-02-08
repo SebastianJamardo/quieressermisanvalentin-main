@@ -1,12 +1,12 @@
-💖 Para mi amor, Candela 💖
+💖 A mi querida Candela...
 
-Hola, mi vida. ✨
+No sé cómo empezar. Nunca fui bueno escribiendo cartas, pero hoy quiero hacerlo porque vos lo merecés.
 
-Este mensaje es solo para vos, porque sos la persona más increíble que existe. En unos días vamos a cumplir seis meses juntos (¡el 20! 🎉) y no puedo estar más feliz de compartir este tiempo con vos. Cada día a tu lado es especial, y no hay momento en el que no agradezca tenerte conmigo.
+Estamos por cumplir seis meses juntos, y en este tiempo aprendí más de mí mismo que en años estando solo. Siempre pensé que el amor no era para mí, que nunca sería suficiente para alguien, pero con vos entendí lo que significa realmente amar. Me enseñaste a salir de mi zona de confort, a querer ser mejor cada día, y a disfrutar la vida de una manera que antes no imaginaba.
 
-Me hacés reír, me apoyás en todo y sos mi persona favorita en el mundo. 🥰 Gracias por cada abrazo, cada palabra linda y cada instante que pasamos juntos. No importa cuánto tiempo pase, siempre voy a elegirte a vos. 💖
+Las relaciones no son perfectas, y sé que a veces temo no estar a la altura, pero quiero que sepas que lo intento con todo mi corazón. No hay un solo día en el que no me sienta afortunado de tenerte a mi lado.
 
-Te amo con todo mi corazón, Candela. 💕
+Ojalá esta carta te haga sonreír cada vez que la leas y te recuerde cuánto te amo. Porque sí, te amo, Candela, más de lo que las palabras pueden decir. ❤️
 
-Con amor,
-Sebastián. ❤️
+Con todo mi amor,
+Sebastián
